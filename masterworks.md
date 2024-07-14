@@ -9,9 +9,11 @@
 ---
 [1970's]
 - Who's Next (The Who) (1971)
+- Argus (Wishbone Ash) (1972)
 - Close to the Edge (Yes) (1972)
 - Machine Head (Deep Purple) (1972)
 - Thick as a Brick (Jethro Tull) (1972)
+- Ashes Are Burning (Renaissance) (1973)
 - The Dark Side of the Moon (Pink Floyd) (1973)
 - Queen II (Queen) (1974)
 - Suicide Sal (Maggie Bell) (1975)
