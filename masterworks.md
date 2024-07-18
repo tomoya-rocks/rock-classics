@@ -25,6 +25,7 @@
 - Queen II (Queen) (1974)
 - Suicide Sal (Maggie Bell) (1975)
 - 2112 (Rush) (1976)
+- Hotel California (Eagles) (1976)
 - Rising (Rainbow) (1976)
 ---
 [1980's]
