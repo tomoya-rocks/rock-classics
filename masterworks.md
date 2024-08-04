@@ -38,7 +38,9 @@
 ---
 [1980's]
 - Back in Black (AC/DC) (1980)
+- Blizzard of Ozz (Ozzy Osbourne) (1980)
 - Iron Maiden (Iron Maiden) (1980)
+- Ready an' Willing (Whitesnake) (1980)
 - 1984 (Van Halen) (1984)
 - Master of Puppets (Metallica) (1986)
 - Appetite for Destruction (Guns N' Roses) (1987)
