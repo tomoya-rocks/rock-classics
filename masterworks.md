@@ -6,7 +6,9 @@
 - Disraeli Gears (Cream) (1967)
 - Surrealistic Pillow (Jefferson Airplane) (1967)
 - The Doors (The Doors) (1967)
+- Electric Ladyland (The Jimi Hendrix Experience) (1968)
 - Cheap Thrills (Big Brother and the Holding Company) (1968)
+- Music from Big Pink (The Band) (1968)
 - The Kinks Are the Village Green Preservation Society (The Kinks) (1968)
 - Truth (Jeff Beck Group) (1968)
 - Abbey Road (The Beatles) (1969)
@@ -27,7 +29,8 @@
 - Ashes Are Burning (Renaissance) (1973)
 - The Dark Side of the Moon (Pink Floyd) (1973)
 - (Pronounced 'Lĕh-'nérd 'Skin-'nérd) (Lynyrd Skynyrd) (1973)
-- Phenomenon (UFO) (UFO)
+- Irish Tour '74 (Rory Gallagher) (1974)
+- Phenomenon (UFO) (1974)
 - Queen II (Queen) (1974)
 - Alive! (Kiss) (1975)
 - Suicide Sal (Maggie Bell) (1975)
@@ -49,6 +52,7 @@
 - New Jersey (Bon Jovi) (1988)
 - Operation: Mindcrime (Queensrÿche) (1988)
 - Dr. Feelgood (Mötley Crüe) (1989)
+- Skid Row (Skid Row) (1989)
 ---
 [1990's]
 - Lean into It (Mr.Big) (1991)
@@ -56,3 +60,4 @@
 - When You're A Tuesday Girl (Tuesday Girls) (1995)
 - Go! (Fair Warning) (1997)
 - Bring 'Em Out Live (FireHouse) (1999)
+- Metropolis Pt. 2: Scenes from a Memory (Dream Theater) (1999)
