@@ -15,6 +15,7 @@
 - In the Court of the Crimson King (King Crimson) (1969)
 - Led Zeppelin (Led Zepplin) (1969)
 - Let It Bleed (The Rolling Stones) (1969)
+- Ssssh (Ten Years After) (1969)
 ---
 [1970's]
 - Déjà Vu (Crosby, Stills, Nash & Young) (1970)
