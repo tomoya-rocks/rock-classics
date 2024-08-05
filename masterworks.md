@@ -46,6 +46,7 @@
 - Iron Maiden (Iron Maiden) (1980)
 - Ready an' Willing (Whitesnake) (1980)
 - 1984 (Van Halen) (1984)
+- Tooth and Nail (Dokken) (1984)
 - Master of Puppets (Metallica) (1986)
 - Appetite for Destruction (Guns N' Roses) (1987)
 - Hysteria (Def Leppard) (1987)
