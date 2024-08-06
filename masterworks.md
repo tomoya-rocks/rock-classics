@@ -16,9 +16,12 @@
 - Led Zeppelin (Led Zepplin) (1969)
 - Let It Bleed (The Rolling Stones) (1969)
 - Ssssh (Ten Years After) (1969)
+- シカゴの軌跡 (Chicago Transit Authority) (1969)
 ---
 [1970's]
+- Climbing! (Mountain) (1970)
 - Déjà Vu (Crosby, Stills, Nash & Young) (1970)
+- Layla and Other Assorted Love Songs (Derek and the Dominos) (1970)
 - Free Live! (Free) (1971)
 - Pictures at an Exhibition (Emerson, Lake & Palmer) (1971)
 - Who's Next (The Who) (1971)
@@ -26,8 +29,10 @@
 - Close to the Edge (Yes) (1972)
 - Machine Head (Deep Purple) (1972)
 - Smokin' (Humble Pie) (1972)
+- The Rise and Fall of Ziggy Stardust and the Spiders from Mars (David Bowie) (1972)
 - Thick as a Brick (Jethro Tull) (1972)
 - Ashes Are Burning (Renaissance) (1973)
+- Live in Japan (Beck, Bogert & Appice) (1973)
 - The Dark Side of the Moon (Pink Floyd) (1973)
 - (Pronounced 'Lĕh-'nérd 'Skin-'nérd) (Lynyrd Skynyrd) (1973)
 - Irish Tour '74 (Rory Gallagher) (1974)
