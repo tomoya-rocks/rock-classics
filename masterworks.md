@@ -45,6 +45,7 @@
 - Hotel California (Eagles) (1976)
 - Jailbreak (Thin Lizzy) (1976)
 - Rising (Rainbow) (1976)
+- Rocks (Aerosmith) (1976)
 - Sad Wings of Destiny (Judas Preist) (1976)
 ---
 [1980's]
