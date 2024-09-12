@@ -56,6 +56,7 @@
 - The Michael Schenker Group (Michael Schenker Group) (1980)
 - 1984 (Van Halen) (1984)
 - Tooth and Nail (Dokken) (1984)
+- Staying a Life (Accept) (Recorded at 1985 in Osaka Japan)
 - Master of Puppets (Metallica) (1986)
 - Reign in Blood (Slayer) (1986)
 - Appetite for Destruction (Guns N' Roses) (1987)
