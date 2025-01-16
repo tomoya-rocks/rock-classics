@@ -22,6 +22,7 @@
 - Climbing! (Mountain) (1970)
 - Déjà Vu (Crosby, Stills, Nash & Young) (1970)
 - Layla and Other Assorted Love Songs (Derek and the Dominos) (1970)
+- At Fillmore East (The Allman Brothers Band) (1971)
 - Free Live! (Free) (1971)
 - Pictures at an Exhibition (Emerson, Lake & Palmer) (1971)
 - Who's Next (The Who) (1971)
